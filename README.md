@@ -2,7 +2,7 @@
 
 
 <p align="center">
-  <img src="./cover.jpg" alt="Cover" width="400"/>
+  <img src="./cover.png" alt="Cover" width="400"/>
 </p>
 
 
