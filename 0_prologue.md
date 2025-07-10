@@ -32,6 +32,6 @@ She paused.
 
 Something in you makes you want to stay. To listen to the tales of this blonde woman dressed in a white saree and speaking of Murugan as if it was the most natural thing in the world. 
 
-You nod. 
+You nod.
 
-With the energy of a true story teller, the woman begins her tale.
+With a glint in her blue eyes, as if she has been waiting to tell the story for ages, the woman begins her tale of the God you thought you knew.
