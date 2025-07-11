@@ -34,4 +34,4 @@ And when they do… it means he is remembering.
 ## Table of Contents
 
 #### Act 1
-- [Prologue](./act_1/0_prologue.md)
+- [Prologue](./chapters/act_1/0_prologue.md)
