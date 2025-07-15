@@ -3,7 +3,9 @@ He was back in the battlefield. The sky was a raging orange. But there were no b
 Suddenly, the skies darkened. A being of pure darkness manifested near the child. It raised its obsidian spear to strike. The child turned back to look at the monster. Instead of fear, she displayed calmness. She stood up, bringing her hands together in vanakkam and bowed her head. Murugan ran, desperate to protect the innocent girl. But no matter how fast he ran, he could never get any closer to the girl or the monster. He summoned his divine spear, the Vel, at the monster. To his surprise, the monster simply swatted it away. Murugan could only watch helplessly as the monster drove its spear into the girl's heart, killing her instantly. The wooden horse fell from her hands and into the ground, where her blood had begun pooling.
 
 With an anguished wail, Murugan flung himself at the monster. He found himself able to move now, and quickly closed the distance. The monster matched him move for move, never quite overpowering him but never backing down either. After a prolonged battle, Murugan screamed. "Who are you, evil spirit? Why did you kill the child?" The monster looked at him. Slowly, the swirling shadows began to still. Murugan fell backwards as he saw his own face reflected in the monster. "I am you, child of Shiva. I am the God of War, the killer of Asuras. The man who orphans children by killing their parents. No matter how much you fight, you will never be able to outmatch me."
----
+
+***
+
 Murugan woke up with a jolt. He was panting and sweating profusely, and it seemed he had been crying in his sleep. His consorts, Valli and Deivanai, were already awake and looking at him with deep concern. As the dream came back to him, he sat there and cried, repeatedly whispering to himself, "What have I done?" Valli placed a hand on his back. "What happened, Swami? I have never seen you this affected. I have seen you fight off whole armies by your own. What happened?" Deivanai didn't speak. She hugged him to her bosom, letting him cry till his breath steadied and he came back to normal.
 
 He finally spoke as the two women listened intently. "Something broke in me. I no longer know who I am. So far, I believed whole heartedly in dharma. My personal dharma was to be the sword and shield of the heavens, standing against the Asura horde whenever they rise. Yet, I feel conflicted. How many lives should I take to protect this dharma? Is it really necessary? Or merely an excuse to keep killing?" 
@@ -15,7 +17,9 @@ It was Valli who spoke first. "Skandha, I am a mere mortal. I am the daughter of
 Deivanai caressed the warlord's hair as she addressed him. "Karthikeya, do not think I am disagreeing with you or Valli. I am the daughter of Indra. I am the princess of the Deva clan. And I am your wife. I agree with Valli that dharma is complex. But when we do not know what to do, that doesn't mean we question the divine nature of Dharma itself. It means we must introspect and think deeply about what we think our dharma is. Every being in the world must fulfill its dharma if the universe is to remain in balance."
 
 Murugan listened quietly. Deep in his heart, he agreed with both his consorts. That was the core confusion. As he drifted back to sleep, he remembered thinking that only one person can help him with his dilemma. 
----
+
+***
+
 The next morning, Murugan visited his brother. The elephant-headed god was lauded by many as the God of Wisdom - a title that belied his age and youth. He walked into Ganesh's house with a lack of ceremony or protocol. All that was for guests, not brothers. As expected, Ganesh was in his library, nose (or was it trunk?) buried in a huge pile of palmyra manuscripts. An equally huge pile of ladoos and modaks sat near his other hand. Murugan sat down on the table across from him. "Welcome, brother." Ganesh told without looking up. "I was wondering when you would come."
 
 "What do you mean? How do you know I was going to come?" asked Murugan. Ganesh looked up, a sad smile on his face. "I saw you after the war, thambi. When the heavens celebrated, I saw you go through hell. I knew sooner or later, you would find your way to me." He put down the manuscript and moved the plates of food aside. "Tell me, Kathirvela. What is bothering you?"
@@ -23,5 +27,7 @@ The next morning, Murugan visited his brother. The elephant-headed god was laude
 Murugan spent the next hours explaining his dilemma to the wisest man he knew. Surely, Ganesh would be able to help him. Ganesh listened intently. He did not interrupt Murugan, even when Murugan was not able to make sense of what he was talking. He did not flinch when Murugan told him that he doubted his dharma. At the end, Murugan looked at him with pleading eyes. "Tell me, oh brother, what should I do? How can I defend swarga when I doubt my own dharma? How can I ride into battle with conviction, and inspire greatness in my men, when I am not able to believe in the cause?"
 
 Ganesh was silent for a few minutes. When he spoke, his voice was soft, his eyes deep. "Muruga, you ask questions no God or mortal has ever asked. I can tell you the definition of dharma in a hundred different means. But that is not going to answer your question or assuage this pain you feel. I will give you but one advice: look within yourself. Follow your heart. You are a wise man. You taught our father in Swamimalai, not me."
----
+
+***
+
 It was late evening when Murugan left Ganesh's house. He had spent a lot of time looking within himself as his brother had suggested. No matter how many times he asked the question, the same answer kept coming back to him. He went back to his palace and sat at his table, a fresh set of palmyra leaves and a stylus ready. With a heavy yet clear heart, he began writing the first of the letters.
