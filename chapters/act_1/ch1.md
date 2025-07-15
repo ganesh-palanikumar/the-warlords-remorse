@@ -1,3 +1,5 @@
+# Prologue
+
 You start from your hotel, Heritage Madurai, after a simple but fulfilling breakfast of pongal, medhu vada and dosa. You  visited 3 temples yesterday: the Meenakshi Amman temple, Azhagar Kovil and Pazhamudhir Cholai. Today's plan is simple: Drive north to visit the Samayapuram Mariamman temple and continue to Pondicherry, where you are stopping at Reema's place for the night. Her mom had promised to prepare your favorite dish for dinner when you video called her yesterday. You check Google Maps. Samayapuram would be 2.5 hrs from Madurai, and Pondy around 3 hrs from there. Its 9.30 am now. You calculate that you can reach Samayapuram at noon, just before the temple closes at 1pm. By 2pm, you can be out of the temple and on the road to Pondy.
 
 As you are about the board the car, you hear a peacock's cry in the air. 
